@@ -3,7 +3,7 @@
 
 **About Me**👋
 
-- ☀️ RedTeam&&Security Researcher
+- ☀️ Security Researcher
 - 👀 Perfectionism pursuer
-- 🌱 Can eat, Can sleep, AND Can't do anything
-- ‍☠️ Hobbies for learning, likes rolls
+- 🌱 Hacker,Bug,Code
+- ‍☠️ run,run,run
